@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/z33ual.jpg)
+![](https://files.catbox.moe/64hhyg.png)
 ᅟᅟㅤᅟㅤᅟㅤᅟ   
 
 ㅤᅟ𓏶  ㅤᅟ20250805ㅤ ㅤᅟㅤᅟ ㅤ⸝ㅤ   ㅤᅟㅤᅟ  MADA ㅤᅟㅤᅟㅤᅟㅤᅟ
@@ -10,4 +10,4 @@
 ᅟᅟㅤᅟᅟᅟ[more](https://schro-dinger.carrd.co/)  ‌ㅤㅤᅟᅟ ‌‘ ‌ㅤㅤㅤᅟᅟ 20250805ㅤᅟㅤᅟㅤᅟㅤᅟㅤᅟ
 ᅟᅟㅤᅟㅤᅟㅤᅟ   
 
-![](https://files.catbox.moe/8v8q9d.jpg)
+
