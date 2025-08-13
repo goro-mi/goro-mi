@@ -1,3 +1,4 @@
+![](https://files.catbox.moe/z33ual.jpg)
 ㅤᅟ𓏶  ㅤᅟ20250805ㅤ ㅤᅟㅤᅟ ㅤ⸝ㅤ   ㅤᅟㅤᅟ  MADA ㅤᅟㅤᅟㅤᅟㅤᅟ
 ㅤᅟㅤᅟ ‌ ‌ ‌ ‌    VRITRA        ㅤᅟㅤᅟ  ＠hehim ㅤᅟㅤᅟ       .ㅤᅟㅤᅟㅤᅟ
 ㅤㅤᅟᅟyakuzaㅤ ㅤ ㅤᅟㅤ ㅤn+chㅤ ㅤㅤ ㅤ ㅤㅤ ㅤhypmicㅤᅟㅤᅟ
