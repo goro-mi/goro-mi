@@ -6,3 +6,5 @@
 ᅟᅟ 18ㅤㅤㅤᅟㅤᅟㅤㅤㅤᅟ ㅤADULTㅤ ㅤᅟㅤᅟㅤᅟ  ㅤ𓏴 ㅤᅟㅤᅟ
 ᅟᅟㅤᅟᅟᅟ[more](https://schro-dinger.carrd.co/)  ‌ㅤㅤᅟᅟ ‌‘ ‌ㅤㅤㅤᅟᅟ 20250805ㅤᅟㅤᅟㅤᅟㅤᅟㅤᅟ
 ᅟᅟㅤᅟㅤᅟㅤᅟ   
+
+![](https://files.catbox.moe/8v8q9d.jpg)
