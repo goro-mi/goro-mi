@@ -12,4 +12,4 @@
 
 
 
- ![](https://komarev.com/ghpvc/?username=goro-mi&label=🦟&color=F3C6C7&style=plastic)
+ ![](https://komarev.com/ghpvc/?username=goro-mi&label=👻&color=E5E4E2&style=plastic)
