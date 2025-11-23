@@ -11,3 +11,5 @@
 ᅟᅟㅤᅟㅤᅟㅤᅟ   
 
 
+
+ ![](https://komarev.com/ghpvc/?username=goro-mi&label=🦟&color=F3C6C7&style=plastic)
